@@ -1,1 +1,1 @@
-# note-learning-ccna
+# Hi everyone!
